@@ -1,1 +1,1 @@
-# Top Trending Beauty Products in the US Market💄🛍️
+# Top Trending Beauty Products in the US Market 💄🛍️
